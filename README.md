@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AdvaitRN99
 - 👀 I’m interested in Books , Podcasts about history, Basketball,TT , Movies ....
 - 🌱 I’m currently learning Electrical engineering specialised in power and automation
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on I am a noob in coding and development so any opportunity for learning is welcome
 - 📫 How to reach me Insta: advait_ninawe_99 Twitter:@AdvaitNinawe 
 
 <!---
